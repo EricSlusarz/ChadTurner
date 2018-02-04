@@ -1,0 +1,18 @@
+---
+layout: post
+title: Discovering Methods to Prevent Truck Accidents
+featured-img: 4
+---
+
+Recent media attention on the variety of highway fatalities caused by semi-trucks has numerous individuals asking whether our roads are indeed 'safe.' A fully loaded truck, like the 1 that slammed into the rear of another truck on California's I-5 last month can do an intense amount of harm. In that particular accident, 3 individuals had been killed and a nominal amount of ten more injured when the truck entering the 550-foot underpass gone down into the truck in front, causing a massive pile-up and ultimately, an explosion. 
+
+This is not the first time the security of sharing our roads with oversized semi-trailer trucks has been questioned. Trucking industry practices are continuously being reformed to cope with the number of fatalities these vehicles cause, including decreasing the amount of time a truck driver is permitted to drive with out a break, instituting new systems of driver payment that do not include paid-by-the-mile incentives, and adding more highway patrol officers designated to particularly crack down on truck drivers that don't keep proper log books or break traffic laws. But is it sufficient? 
+
+In theory, the enhanced safety measures are beneficial, but the procedure has been slow and for many households, too slow. The year 2000 marked the inception of the Federal Motor Carrier Security Administration (FMCSA), an organization dedicated to reduce the amount of fatality accidents brought out by large trucks. By 2005, not a lot had enhanced. Estimated numbers of annual fatalities brought on by large trucks is still more than five,200. Put differently, 100 households in the U.S. shed a loved one as a result of a huge truck fatality each and every week. 
+
+So what can you do to safeguard your self and your families? 
+The trucking industry isn't going anywhere any time soon, and although we're able to hope that a a couple of these measures start to drastically decrease the amount of highway deaths, now is the time to make certain you're driving the safest vehicles you possibly can. 
+
+Even the safest vehicles may not be in a position to stand up to a collision with a semi, but you will discover particular vehicles that tend to fare better than other people. Initial, SUVs and pickup trucks usually maintain their occupants safer than passenger cars when in collisions. Although other factors clearly dictate how well passengers will be protected in a crash, like the type of crash, the rate of speed the vehicles were moving, and the passive security features installed on the vehicles, SUVs and pickups have a tendency to be heavier and therefore sustain less damage. 
+
+Other crucial elements to examine are the active and passive security features of one's vehicle. For instance, while most SUVS provide dual stage airbags (the kind that safeguard occupants from rear-end and head-on collisions by preventing contact with with the dash and steering column)Feature Articles, the Isuzu Ascender 5-Passenger also sports head-curtain side-impact airbags that look after the physical body from injuries caused by rolling or side-impacts. Taking the time to evaluate the security functions of your automobile to the available security features in models provided by car businesses that are recognized for security (like Isuzu and Volvo) will give a sign of deficits in your vehicles security system.
